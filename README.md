@@ -11,5 +11,3 @@ BOM will be posted soon.
 ![1C09F30F-36CB-4AD8-AEF1-05C157180889_1_105_c](https://github.com/KO-engineering/Mercury/assets/140460567/de6b6ec6-acc9-4e12-8f3b-8061be47e4a8)
 Contact me @ko_enginnering on discord if interested.
 
-
-Bom currently around $200
